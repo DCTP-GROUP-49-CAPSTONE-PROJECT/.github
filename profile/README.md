@@ -8,7 +8,7 @@ revolutionize the landscape.
 
 LifePlus AOB± goes beyond streamlining the donation process. It incentivizes and
 celebrates the heroes behind every lifesaving transfusion: the passionate, selfless
-donors who give the gift of life. Through an innovative points and rewards system,
+donors who give the gift of life. Through an innovative points and rewards system.
 
 LifePlus AOB± empowers donors to track their impact, earn recognition, and access
 valuable rewards that benefit themselves or loved ones
